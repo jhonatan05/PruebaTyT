@@ -1,7 +1,9 @@
 # Prueba T&T Interactiva
 #### Jhonatan Stiven Arévalo Nocua
 > Email: jhon20339@gmail.com
+> 
 > Tel: +57 305 3198623
+> 
 > Linkedin: https://www.linkedin.com/in/jhonatan-stiven-arevalo-nocua-5b23611a2/
 
 
